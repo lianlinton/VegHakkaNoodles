@@ -1,0 +1,1 @@
+Hakka noodles is a popular Indo-Chinese dish of stir fried noodles, veggies and sauces. It is hugely popular in Indian restaurants and street stalls. I like all noodles, but Veg Hakka Noodles is very special because of the way its made (not to mention how good it tasts!).
